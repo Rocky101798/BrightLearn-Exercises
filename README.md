@@ -44,6 +44,6 @@ Where these skills went next → [SQL-Practice-](https://github.com/Rocky101798/
 
 <div align="center">
 
-**Godfrey Siphamandla Moyo** · [GitHub](https://github.com/Rocky101798) · [LinkedIn](https://www.linkedin.com/in/godfrey-siphamandla-moyo-761aba152)
+**Siphamandla Moyo** · [GitHub](https://github.com/Rocky101798) · [LinkedIn](https://www.linkedin.com/in/godfrey-siphamandla-moyo-761aba152)
 
 </div>
